@@ -1,1 +1,1 @@
-Le travaille est le salut de libere
+Le travaille libere
